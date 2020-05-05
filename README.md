@@ -1,0 +1,2 @@
+# life-3.0
+TECHNOLOGY TRENDS 2020
